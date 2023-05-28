@@ -1,0 +1,2 @@
+# Konceptualais_salidzinajums_PROCEDURALS
+Konceptualais_salidzinajums_PROCEDURALS
